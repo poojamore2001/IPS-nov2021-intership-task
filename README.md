@@ -1,1 +1,0 @@
-# IPS-nov2021-intership-task
